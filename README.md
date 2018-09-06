@@ -1,2 +1,2 @@
-# The Next Chapter Window Ministry
+# The Next Chapter Ministry
 
